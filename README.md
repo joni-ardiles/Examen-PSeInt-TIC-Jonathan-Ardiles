@@ -1,1 +1,0 @@
-# Examen-PSeInt-TIC-Jonathan-Ardiles
